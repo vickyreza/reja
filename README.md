@@ -1,2 +1,0 @@
-# reja
-Vicky reza
